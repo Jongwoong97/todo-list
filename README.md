@@ -1,1 +1,1 @@
-You can find a lot of information about cryptocurrencies here.
+You can make your work plan.
